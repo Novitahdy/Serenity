@@ -1,1 +1,1 @@
-Capstone Project: Serenty
+Capstone Project: Serenity
